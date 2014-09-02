@@ -17,7 +17,6 @@ by the fixed and variable costs.
 ![Alt text](http://nntp.ie-t.net/images/estimate9.png)
 ![Alt text](http://nntp.ie-t.net/images/estimate10.png)
 ![Alt text](http://nntp.ie-t.net/images/estimate2.png)
-![Alt text](http://nntp.ie-t.net/images/estimate7.png)
 
 
 

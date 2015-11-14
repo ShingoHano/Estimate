@@ -12,11 +12,11 @@ We were introduced into the household, the mechanism of management accounting
 by the fixed and variable costs.  
   
   
-![Alt text](http://nntp.ie-t.net/images/estimate4.png)
-![Alt text](http://nntp.ie-t.net/images/estimate1.png)
-![Alt text](http://nntp.ie-t.net/images/estimate9.png)
-![Alt text](http://nntp.ie-t.net/images/estimate10.png)
-![Alt text](http://nntp.ie-t.net/images/estimate2.png)
+![Alt text](http://priolo.wktk.so/images/estimate4.png)
+![Alt text](http://priolo.wktk.so/images/estimate1.png)
+![Alt text](http://priolo.wktk.so/images/estimate9.png)
+![Alt text](http://priolo.wktk.so/images/estimate10.png)
+![Alt text](http://priolo.wktk.so/images/estimate2.png)
 
 
 
